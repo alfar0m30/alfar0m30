@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning. (●'◡'●)
 - 💞️ I’m looking to collaborate with MrBeast
 - 📫 How to reach me reach
-- 😄 Pronouns: mr/beast
+- 😄 Pronouns: mrbeast
 - ⚡ Fun fact: i work wit h mr brast
 
 <!---
